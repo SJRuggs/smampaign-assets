@@ -1,0 +1,1 @@
+# smampaign-assets
